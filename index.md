@@ -10,43 +10,43 @@ The seventy-five performances and user-created mashups in this collection compri
 
 
 
-## Lift Every Voice and Sing
 
-### James Weldon Johnson and J. Rosamond Johnson
+### Lift Every Voice and Sing
 
+Lift ev’ry voice and sing,  
+‘Til earth and heaven ring,  
+Ring with the harmonies of Liberty;  
+Let our rejoicing rise    
+High as the list’ning skies,  
+Let it resound loud as the rolling sea.  
+Sing a song full of the faith that the dark past has taught us,  
+Sing a song full of the hope that the present has brought us;  
+Facing the rising sun of our new day begun,  
+Let us march on ’til victory is won.  
 
-Lift ev’ry voice and sing,
-‘Til earth and heaven ring,
-Ring with the harmonies of Liberty;
-Let our rejoicing rise
-High as the list’ning skies,
-Let it resound loud as the rolling sea.
-Sing a song full of the faith that the dark past has taught us,
-Sing a song full of the hope that the present has brought us;
-Facing the rising sun of our new day begun,
-Let us march on ’til victory is won.
+Stony the road we trod,  
+Bitter the chast'ning rod,  
+Felt in the days when hope unborn had died;  
+Yet with a steady beat,  
+Have not our weary feet   
+Come to the place for which our fathers sighed?  
+We have come over a way that with tears has been watered,  
+We have come, treading our path through the blood of the slaughtered,  
+Out from the gloomy past,  
+‘Til now we stand at last   
+Where the white gleam of our bright star is cast.  
 
-Stony the road we trod,
-Bitter the chast'ning rod,
-Felt in the days when hope unborn had died;
-Yet with a steady beat,
-Have not our weary feet
-Come to the place for which our fathers sighed?
-We have come over a way that with tears has been watered,
-We have come, treading our path through the blood of the slaughtered,
-Out from the gloomy past,
-‘Til now we stand at last
-Where the white gleam of our bright star is cast.
+God of our weary years,  
+God of our silent tears,  
+Thou who has brought us thus far on the way;  
+Thou who has by Thy might   
+Led us into the light,  
+Keep us forever in the path, we pray.  
+Lest our feet stray from the places, our God, where we met Thee,  
+Lest, our hearts drunk with the wine of the world, we forget Thee;  
+Shadowed beneath Thy hand,  
+May we forever stand,  
+True to our God,  
+True to our native land.  
 
-God of our weary years,
-God of our silent tears,
-Thou who has brought us thus far on the way;
-Thou who has by Thy might
-Led us into the light,
-Keep us forever in the path, we pray.
-Lest our feet stray from the places, our God, where we met Thee,
-Lest, our hearts drunk with the wine of the world, we forget Thee;
-Shadowed beneath Thy hand,
-May we forever stand,
-True to our God,
-True to our native land.
+1900, by James Weldon Johnson (lyrics) and J. Rosamond Johnson (music)   
